@@ -42,7 +42,6 @@ Passionate about the intersection of **Brand Identity**, **Immersive Technology*
 
 ### 🔗 Let's Connect
 - [LinkedIn](https://www.linkedin.com/in/chirag-grover-bbb8278/)
-- [Professional Portfolio](https://www.bulletproof.com/)
 
 ---
 
